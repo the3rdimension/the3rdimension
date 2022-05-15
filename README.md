@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @the3rdimension
+- 👋 Hi, I’m Vivek Gupta
 - 🎮 I’m interested in Games and Game Development
 - 🎯 Currently learning Game Design
 - 👦 Instagram - https://www.instagram.com/the3rdimension_/
